@@ -1,1 +1,1 @@
-soon™
+https://massgrave.dev/blog/keyhole
